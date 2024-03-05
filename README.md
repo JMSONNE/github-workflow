@@ -1,1 +1,5 @@
-I am student B asd fasd fasd f
+
+C. "To Improve is to change"
+E. "There is nothing permanent, except change"
+
+
